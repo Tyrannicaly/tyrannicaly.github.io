@@ -1,1 +1,0 @@
-# tyrannicaly.github.io
